@@ -1,1 +1,1 @@
-1 kasser øl
+3 kasser øl
